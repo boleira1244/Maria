@@ -1,1 +1,3 @@
-# Maria
+-# Maria
+-:stuck_out_tongue: Estudante de**PENSAMENTO COMPUTTACIONAL**
+- :sunglasses: MEU email de contato e [email](maria.rael.oliveira@escola.pr.gov.br)
